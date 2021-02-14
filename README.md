@@ -1,2 +1,0 @@
-# khromachoubasil.github.io
-restaurant
